@@ -7,6 +7,11 @@ tags: saint
 ---
 #  n ɔː r ˈ m ɑː n i / nor-MAH-nee
 ### newsbae
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/s2gUyn-WjLo?si=_PmE_rtYHmknyIe-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+@netflix <~ @nasa-jpl why do they hang out with hookers all day and i cant find a working cellphone with no hassle ? @whitehouse @nasa those ppl are useless! can we fire up telstar ? ? ? 
+
 # Europa Clipper Camera Passes First Test in Space
 Soon after NASA's Europa Clipper spacecraft launched toward Jupiter's icy moon on Oct. 14, 2024, the mission team powered on each of the science instruments for a series of test or "checkout" activities. The Europa Imaging System – with its narrow-angle and wide-angle cameras – underwent its first checkouts in December 2024.
 
