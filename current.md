@@ -19,6 +19,12 @@
 <iframe width="560" height="315" src="https://www.youtube.com/embed/_Qgw0r29GYw?si=IlVhaCxr8D712WOf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <img src="https://assets.privy.com/picture_photos/2634698/medium/1570a0e010b0404a82d3fa4c9d1e6e36?1655315936" />
 
+#  n ɔː r ˈ m ɑː n i / nor-MAH-nee
+### newsbae
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/s2gUyn-WjLo?si=_PmE_rtYHmknyIe-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+@netflix <~ @nasa-jpl why do they hang out with hookers all day and i cant find a working cellphone with no hassle ? @whitehouse @nasa those ppl are useless! can we fire up telstar ? ? ? 
 
 [Twing](https://x.com/RicoThaka/status/1899156619084300541) doesn't work on Metrro so a lot of data is missing for an audience @blackgirlscode : @normani I'm sad 😣🙇🏾‍♂️😿🙍🏾‍♂️
 
