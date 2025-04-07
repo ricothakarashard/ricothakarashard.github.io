@@ -9,7 +9,10 @@
   {% endfor %}
    
  </div>  
- 
+
+
+ Written Notes for [#NASAJPL](https://www.jpl.jobs/job/R5139/Computer-Systems-Engineer-III)
+ <iframe src="https://archive.org/embed/image-2-07" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
 
 ### April 4, 2025 (Sol 1466) at the local mean solar time of 11:20:22.
 ![Mars Perseverance Sol 1466](https://mars.nasa.gov/mars2020-raw-images/pub/ods/surface/sol/01466/ids/edr/browse/ncam/NLF_1466_0797079079_020ECM_N0710160NCAM00501_01_295J01_1200.jpg)
